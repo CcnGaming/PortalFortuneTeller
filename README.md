@@ -7,6 +7,8 @@ Code Ninjas Waterloo for the code
 
 [The Portal Wiki](https://theportalwiki.com/wiki/chell) for the image of Chell
 
+Press Start To Laugh for some of the refrences that I made
+
 Me for writing the responces
 
 And YOU for using my apps
